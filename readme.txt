@@ -1,1 +1,1 @@
-Probanje
+Probanje je probanje
