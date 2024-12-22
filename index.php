@@ -1,1 +1,1 @@
-Ovo NIsam ja
+Ovo NIsam ja nego ja sam
